@@ -1,2 +1,0 @@
-# duinishuo.cn
-duinishuo.cn
